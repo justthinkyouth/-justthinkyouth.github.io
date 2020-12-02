@@ -1,1 +1,1 @@
-# -justthinkyouth.github.io
+# justthinkyouth.github.io
